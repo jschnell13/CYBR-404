@@ -1,0 +1,3 @@
+Career Center Reflection
+
+The Career Center presentation reminded me of many important truths related to networking and job searching. One specific approach I was reminded of was to ask potential employers open-ended questions. By asking open-ended questions, the prospective employee facilitates conversation and displays interest in the company. Besides implementing this practice, one area of career growth I would like to develop is a mindset of constant networking. Ms. Goeke mentioned that we are always networking, whether in class, work, or other social settings. Thus, I want to do a better job of adopting this mindset and attitude as I interact with those around me.
